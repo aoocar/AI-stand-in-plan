@@ -1,4 +1,5 @@
-#  AI-stand-in Plan AI分身创富计划源分享
+# AI副业赚钱资讯合集
+# AI-stand-in Plan AI分身创富计划分享
 这是一个ai副业赚钱资讯信息的大合集，将在全网搜索并整理ai副业赚钱的相关方法、技术、工具、以及一些可以赚钱的平台和渠道。
 期望能在AI时代，打破信息茧房，让大家都能在这个时代利用AI智能化做副业，赚取工作之余的额外收益。
 
@@ -105,137 +106,188 @@ aoo697
 # AI自媒体赚钱思路分享
 ## ai脚本视频赚钱
 ### 图片绘本故事
-使用AI技术重新绘制三国连环画，轻松赚取收益！ https://www.limingdao.com/59848
-1分钟教你利用ChatGPT+Midjourney做小红书！月入2w+! https://www.limingdao.com/59859
-AI制作儿童故事动漫，低成本高回报的项目，全流程免费教学，不到八分钟就能学会！ https://www.limingdao.com/59865
-在家轻松搬砖赚钱，全程AI操作，手把手教你如何制作民间故事视频赚取丰厚收益！ https://www.limingdao.com/59870
+- 使用AI技术重新绘制三国连环画，轻松赚取收益！ https://www.limingdao.com/59848
+- 1分钟教你利用ChatGPT+Midjourney做小红书！月入2w+! https://www.limingdao.com/59859
+- AI制作儿童故事动漫，低成本高回报的项目，全流程免费教学，不到八分钟就能学会！ https://www.limingdao.com/59865
+- 在家轻松搬砖赚钱，全程AI操作，手把手教你如何制作民间故事视频赚取丰厚收益！ https://www.limingdao.com/59870
 ### 虚拟人口播
-- 免费AI口播工具推荐！数字人本地部署教程 https://17yongai.com/12155.html
-- 免费生成AI数字人！完美应对你的智能化需求！副业方向推荐！ https://17yongai.com/11657.html
-- ChatGPT与AI数字人联手，普通人也能轻松实现财富增长！ https://17yongai.com/11457.html
-- ChatGPT助力AI数字人，开启自媒体财富新时代！普通人也能轻松产出爆款数字人视频，让财富滚滚而来！ https://17yongai.com/11455.html
+- - 免费AI口播工具推荐！数字人本地部署教程 [https://www.limingdao.com/59872](https://www.limingdao.com/59872)
+- 免费生成AI数字人！完美应对你的智能化需求！副业方向推荐！ [https://www.limingdao.com/59877](https://www.limingdao.com/59877)
+- ChatGPT与AI数字人联手，普通人也能轻松实现财富增长！ [https://www.limingdao.com/59882](https://www.limingdao.com/59882)
+- ChatGPT助力AI数字人，开启自媒体财富新时代！普通人也能轻松产出爆款数字人视频，让财富滚滚而来！ [https://www.limingdao.com/59888](https://www.limingdao.com/59888)
 ### 小说漫画推文
-- 揭秘！小说秒变漫画，你绝对想不到的震撼效果！ https://17yongai.com/11423.html
-- 【免费教程】如何用AI快速制作小说漫画？一天2970，轻松副业！ https://17yongai.com/11549.html
-- 在家也能轻松赚钱！全程AI操作，将视频“动漫化”创造收益！快来学习这个简单方法吧！ https://17yongai.com/11517.html
-- 【新玩法揭秘】如何使用AI工具赚取小说漫画创作的收入？ https://17yongai.com/11543.html
+
+- 揭秘！小说秒变漫画，你绝对想不到的震撼效果！ [https://www.limingdao.com/59893](https://www.limingdao.com/59893)
+- 【免费教程】如何用AI快速制作小说漫画？一天2970，轻松副业！ [https://www.limingdao.com/59898](https://www.limingdao.com/59898)
+- 在家也能轻松赚钱！全程AI操作，将视频“动漫化”创造收益！快来学习这个简单方法吧！ [https://www.limingdao.com/59903](https://www.limingdao.com/59903)
+- 【新玩法揭秘】如何使用AI工具赚取小说漫画创作的收入？ [https://www.limingdao.com/59908](https://www.limingdao.com/59908)
 ### 电影剧情解说
-- 【AI副业赚钱】用ChatGPT兼职做电影解说，三天涨粉100000！！！ https://17yongai.com/11617.html
-- 用AI生成电影解说视频，半年狂赚43W！只要找对方法，其实富起来也就这两年！ https://17yongai.com/11622.html
-- 通过ChatGPT写电影解说赚钱，每天加菜准备长胖！ https://17yongai.com/11624.html
-- AI快速制作电影解说视频，三天收获3700！操作简单，分享详细实操教程！ https://17yongai.com/11626.html
-### 热点选题技巧
-- 用AI做短视频简直太赚了，AI赚钱新玩法！！！ https://17yongai.com/11459.html
-- 【AI自媒体】黑暗心理学：如何在抖音赚钱变现？ https://17yongai.com/11538.html
-- AI头条玩法！搬砖变现超简单！ https://17yongai.com/11439.html
-- 想要月入万刀？试试人工智能AI制作病毒式励志视频吧！跟随ChatGPT教程，轻松开启短视频赚钱和创业之旅，实现你的财富梦想！ https://17yongai.com/11529.html
-##  视频变幻赚钱
-### 瞬息全宇宙
-- 科技感转场，酷炫动画插件，简简单单马上学会做爆点视频！ https://17yongai.com/11474.html
-- 【教程】AI绘画生成视频变动画，瞬息全宇宙教你如何操作！ https://17yongai.com/11552.html
-- MJ无限穿越效果教程来啦！涨粉率奇高的一个视频效果技巧！ https://17yongai.com/11477.html
-- 【AI自媒体】瞬息全宇宙动画制作秘笈，快来学习！ https://17yongai.com/11555.html
-### 热舞小姐姐
-- 【教程】AnimateDiff AI插件安装和使用指南 https://17yongai.com/11571.html
-- 【AI自媒体必备】animatediff迅速玩转Comfy UI，视频效果制作幕后揭秘！ https://17yongai.com/11569.html
-- AI自媒体变现 | Comfy UI动效制作全流程解析 https://17yongai.com/11558.html
-- 学会就能接单做兼职！纯AI丝滑长视频教程来咯！ 用到了comfyUI里的animatediff！ https://17yongai.com/11479.html
-### 无限穿越放大&缩小景别
-- 掌握SD无限穿越，轻松制作无限放大视频！ https://17yongai.com/11629.html
-- 【MJ无限穿越】新玩法大揭秘！怎么做无限扩展？ https://17yongai.com/11632.html
-- Midjourney新玩法：无限穿越特效制作教程 https://17yongai.com/11616.html
-- 【MJ新玩法】无限放大无限穿越视频制作教程 https://17yongai.com/11614.html
-## 视频翻译&视频搬运
-- AI视频搬运工具，助你一键搬运国外视频 https://17yongai.com/12159.html
-- 国外视频搬运攻略：如何将国外视频搬运到国内平台？ https://17yongai.com/12153.html
-- 功能强大上手简单还免费的AI翻译同声传译！赶快拿来用！去做优质作品！ https://17yongai.com/11640.html
-- 自动翻译及配音！效果自己看！超强工具助你直接涨粉引流变现！ https://17yongai.com/11635.html
-## AI图片赚钱副业
-### 个人头像
-- 【副业】0成本小红书AI头像壁纸赚钱骚操作，坚持1个月日入1000元真香！ https://17yongai.com/11447.html
-- 用AI制作头像快速搞钱，一个月几千块轻松到手！ https://17yongai.com/11659.html
-- Midjourney🚀生成这样的旧漫头像 https://17yongai.com/9318.html
-- 怎样让你的AI头像更“像”你？超详细教程来了 https://17yongai.com/9353.html
-### 桌面壁纸
-- AI壁纸图片副业0基础多重变现！一分钟学会！ https://17yongai.com/11333.html
-- Midjourney生成精美的二次元壁纸 https://17yongai.com/9398.html
-- 今日份壁纸请查收 https://17yongai.com/9413.html
-- Midjourney生成壁纸-世界树 https://17yongai.com/9449.html
-### 模特换装
-- 用MJ做模特换装，不用本地部署，直接上手做 ，效果很好！ https://17yongai.com/11692.html
-- AI高仿真模特变装教程！为你的开店成本节省一大笔！ https://17yongai.com/11683.html
-- 免费100%保留原型换装教程！电商福音！ https://17yongai.com/11690.html
-- 一键搞定AI模特换装！无需SD和MJ，出图超简单！ https://17yongai.com/11698.html
-### 商品广告
-- 自己在家直接输出高级广告！老板劲省广告费！副业者猛赚广告收入！五分钟学会！ https://17yongai.com/11433.html
-- 【AI搞钱】利用AI快速生成商品包装 https://17yongai.com/9158.html
-- 设计无难事 I 草图一键生成效果图 https://17yongai.com/9254.html
-- Midjourney生成产品图-香水 https://17yongai.com/9699.html
-### 儿童绘本
-- 抓住机会！快速入手赚钱！AI儿童绘本制作不学绝对后悔！ https://17yongai.com/11668.html
-- 【AI绘图搞钱】快速做手账图 https://17yongai.com/9149.html
-- 【AI绘图搞钱】快速做人物手账图 https://17yongai.com/9420.html
-- 制作人物手账-消防员小可爱 https://17yongai.com/9495.html
-### 表情包
-- 我用AI生成的表情包搞到钱了！每日都有进账！！ https://17yongai.com/11672.html
-- 想要轻松赚取额外收入？试试AI图片副业吧！只需2分钟自动生成表情包，即可获得永久被动收入！ https://17yongai.com/11488.html
-- 💰用Ai搞钱｜批量生成表情包 https://17yongai.com/9115.html
-- AI表情包制作教程 超简单 https://17yongai.com/9269.html
-### 家具&装修
-- 【Midjourney教程】如何用AI装修毛坯房客厅？ https://17yongai.com/11680.html
-- MJ制作建筑图片-手绘风建筑 https://17yongai.com/10435.html
-- MJ制作建筑图片-古风建筑图 https://17yongai.com/10498.html
-- MJ制作建筑图片-室内建筑图 https://17yongai.com/10502.html
-### LOGO制作
-- 【AI副业】ChatGPT+Midjourney 2分钟自动生成标志Logo！学会接单日入500！（附教程） https://17yongai.com/11466.html
-- 【Midjourney教程】如何快速设计品牌logo？ https://17yongai.com/11684.html
-- 【AIlogo制作教程】Midjourney教你如何轻松设计logo https://17yongai.com/11687.html
-- 【AI海报LOGO设计】用AI软件StableDiffusion设计各种风格的海报字体logo https://17yongai.com/11700.html
-### 照片修复
-- 【AI绘画】黑白老照片修复上色教程，让回忆更清晰！ https://17yongai.com/11670.html
-- 【AI图像修复神器】一键修复老照片，提高画质！ https://17yongai.com/11665.html
-- 【新玩法】PS+AI带你修复老照片赚钱 https://17yongai.com/11674.html
-- 老照片修复攻略：AI绘画轻松接单赚钱 https://17yongai.com/11677.html
-## AI文案赚钱副业
-### 新媒体推文
-- 短视频文案制作思维教学！全干货！ https://17yongai.com/11735.html
-- 新媒体脚本如何高效率创作？AI解决方案如下！ https://17yongai.com/11742.html
-- 【副业】ChatGPT批量搞定小红书文案的骚操作！篇篇都是爆款！ https://17yongai.com/11733.html
-- 用GPT生成新媒体文案！效率拉满，收益提高！ https://17yongai.com/11731.html
-### AI论文代写
-- 中科院美术专业版GPT Academic免费润色学术论文！ https://17yongai.com/11745.html
-- 【AI写论文神器】一键润色、查重，轻松搞定学术写作！ https://17yongai.com/11740.html
-- 【AI写论文】如何利用AI工具撰写论文？ https://17yongai.com/11738.html
-- 【慎用AI写作工具】如何避免论文风险？ https://17yongai.com/11727.html
-### AI小说编剧
-- 【AI编剧神器来袭】一键生成完美剧本，轻松成为编剧达人！ https://17yongai.com/11716.html
-- 【AI写小说指南】教你如何玩转AI创意写作 https://17yongai.com/11714.html
-- 【AI写作秘籍】7步教你让ChatGPT成为你的小说助手！ https://17yongai.com/11547.html
-- AI写小说指令教学，提高写作效率 https://17yongai.com/11708.html
-### AI简历改写
-- 无需GPT的AI简历生成器！助你求职之路更有竞争力！ https://17yongai.com/11713.html
-- 应届生的从0到offer：手把手教你用AI打造出面试率99%的简历 https://17yongai.com/11707.html
-- 求职神器ChatGPT帮你三分钟搞定从0到满分简历 https://17yongai.com/11705.html
-- ChatGPT+简历修改服务，月盈利过万 | 保姆级教程公开，人人可做！ https://17yongai.com/11721.html
-## AI音频赚钱副业
-### AI声音克隆
-- 10分钟学会声音克隆！一键启动包发布！在家自己做AI音频副业！ https://17yongai.com/11451.html
-- 最适合新手来做的声音克隆！非常友好！ https://17yongai.com/11770.html
-- AI变声翻唱教程！做优质内容涨粉！ https://17yongai.com/11756.html
-- 低配也能做AI变声！一起来体验DDSP！ https://17yongai.com/11765.html
-### AI音乐
-- AI音乐生成神器大揭秘！stable audio等工具任你选择 https://17yongai.com/12179.html
-- 【AI音乐】音乐人失业！5分钟免费生成歌曲，作曲+填词+自唱！用AI音乐赚钱，从零基础变成创作歌手！ https://17yongai.com/11470.html
-- 【AI音乐新利器】Suno：一键生成多样音乐，中英文歌词轻松应对 https://17yongai.com/11755.html
-- AI音乐生成工具全攻略，轻松创作免版权音乐！ https://17yongai.com/11759.html
-##  AI直播
-### 无人货架直播
-- 【AI直播】最新无人直播语音技术，还能听出来不是真人讲的吗？ https://17yongai.com/11794.html
-- 【教程】AI主播能自己介绍商品，回复无人直播间各种互动！ https://17yongai.com/11796.html
-- 无人直播玩法来这里学习！ https://17yongai.com/11792.html
-- 【AI直播】搭建自己的AI无人直播间！零基础入手赚大钱！ https://17yongai.com/11800.html
-### 虚拟人直播
-- 制作属于你的AI直播间！立刻生成你的数字形象！ https://17yongai.com/11779.html
-- 【AI直播】数字人生成项目！直播必备技能！ https://17yongai.com/11785.html
-- 一张图片就能虚拟直播！这个门槛确定不来看看吗？ https://17yongai.com/11790.html
-- 【虚拟人项目】开源聊天虚拟人项目！最有搞头的项目！ https://17yongai.com/11781.html
+
+- 【AI副业赚钱】用ChatGPT兼职做电影解说，三天涨粉100000！！！ [https://www.limingdao.com/59913](https://www.limingdao.com/59913)
+- 用AI生成电影解说视频，半年狂赚43W！只要找对方法，其实富起来也就这两年！ [https://www.limingdao.com/59918](https://www.limingdao.com/59918)
+- 通过ChatGPT写电影解说赚钱，每天加菜准备长胖！ [https://www.limingdao.com/59923](https://www.limingdao.com/59923)
+- AI快速制作电影解说视频，三天收获3700！操作简单，分享详细实操教程！ [https://www.limingdao.com/59928](https://www.limingdao.com/59928)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFNyU4MyVBRCVFNyU4MiVCOSVFOSU4MCU4OSVFOSVBMiU5OCVFNiU4QSU4MCVFNSVCNyVBNw==)热点选题技巧
+
+- 用AI做短视频简直太赚了，AI赚钱新玩法！！！ [https://www.limingdao.com/59933](https://www.limingdao.com/59933)
+- 【AI自媒体】黑暗心理学：如何在抖音赚钱变现？ [https://www.limingdao.com/59938](https://www.limingdao.com/59938)
+- AI头条玩法！搬砖变现超简单！ [https://www.limingdao.com/59943](https://www.limingdao.com/59943)
+- 想要月入万刀？试试人工智能AI制作病毒式励志视频吧！跟随ChatGPT教程，轻松开启短视频赚钱和创业之旅，实现你的财富梦想！ [https://www.limingdao.com/60270](https://www.limingdao.com/60270)
+
+## [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFOCVBNyU4NiVFOSVBMiU5MSVFNSU4RiU5OCVFNSVCOSVCQiVFOCVCNSU5QSVFOSU5MiVCMQ==)视频变幻赚钱
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFNyU5RSVBQyVFNiU4MSVBRiVFNSU4NSVBOCVFNSVBRSU4NyVFNSVBRSU5OQ==)瞬息全宇宙
+
+- 科技感转场，酷炫动画插件，简简单单马上学会做爆点视频！ [https://www.limingdao.com/60272](https://www.limingdao.com/60272)
+- 【教程】AI绘画生成视频变动画，瞬息全宇宙教你如何操作！ [https://www.limingdao.com/59963](https://www.limingdao.com/59963)
+- MJ无限穿越效果教程来啦！涨粉率奇高的一个视频效果技巧！ [https://www.limingdao.com/59958](https://www.limingdao.com/59958)
+- 【AI自媒体】瞬息全宇宙动画制作秘笈，快来学习！ [https://www.limingdao.com/59963](https://www.limingdao.com/59963)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFNyU4MyVBRCVFOCU4OCU5RSVFNSVCMCU4RiVFNSVBNyU5MCVFNSVBNyU5MA==)热舞小姐姐
+
+- 【教程】AnimateDiff AI插件安装和使用指南 [https://www.limingdao.com/59963](https://www.limingdao.com/59963)
+- 【AI自媒体必备】animatediff迅速玩转Comfy UI，视频效果制作幕后揭秘！ [https://www.limingdao.com/59973](https://www.limingdao.com/59973)
+- AI自媒体变现 | Comfy UI动效制作全流程解析 [https://www.limingdao.com/60277](https://www.limingdao.com/60277)
+- 学会就能接单做兼职！纯AI丝滑长视频教程来咯！ 用到了comfyUI里的animatediff！ [https://www.limingdao.com/59983](https://www.limingdao.com/59983)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFNiU5NyVBMCVFOSU5OSU5MCVFNyVBOSVCRiVFOCVCNiU4QSVFNiU5NCVCRSVFNSVBNCVBNyVFNyVCQyVBOSVFNSVCMCU4RiVFNiU5OSVBRiVFNSU4OCVBQg==)无限穿越放大&缩小景别
+
+- 掌握SD无限穿越，轻松制作无限放大视频！ [https://www.limingdao.com/59988](https://www.limingdao.com/59988)
+- 【MJ无限穿越】新玩法大揭秘！怎么做无限扩展？ [https://www.limingdao.com/59993](https://www.limingdao.com/59993)
+- Midjourney新玩法：无限穿越特效制作教程 [https://www.limingdao.com/59998](https://www.limingdao.com/59998)
+- 【MJ新玩法】无限放大无限穿越视频制作教程 [https://www.limingdao.com/60003](https://www.limingdao.com/60003)
+
+## [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFOCVBNyU4NiVFOSVBMiU5MSVFNyVCRiVCQiVFOCVBRiU5MSVFOCVBNyU4NiVFOSVBMiU5MSVFNiU5MCVBQyVFOCVCRiU5MA==)视频翻译&视频搬运
+
+- AI视频搬运工具，助你一键搬运国外视频 [https://www.limingdao.com/60008](https://www.limingdao.com/60008)
+- 国外视频搬运攻略：如何将国外视频搬运到国内平台？ [https://www.limingdao.com/60013](https://www.limingdao.com/60013)
+- 功能强大上手简单还免费的AI翻译同声传译！赶快拿来用！去做优质作品！ [https://www.limingdao.com/60018](https://www.limingdao.com/60018)
+- 自动翻译及配音！效果自己看！超强工具助你直接涨粉引流变现！ [https://www.limingdao.com/60023](https://www.limingdao.com/60023)
+
+## [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyI2FpJUU1JTlCJUJFJUU3JTg5JTg3JUU4JUI1JTlBJUU5JTkyJUIxJUU1JTg5JUFGJUU0JUI4JTlB)AI图片赚钱副业
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFNCVCOCVBQSVFNCVCQSVCQSVFNSVBNCVCNCVFNSU4MyU4Rg==)个人头像
+
+- 【副业】0成本小红书AI头像壁纸赚钱骚操作，坚持1个月日入1000元真香！ [https://www.limingdao.com/60028](https://www.limingdao.com/60028)
+- 用AI制作头像快速搞钱，一个月几千块轻松到手！ [https://www.limingdao.com/60033](https://www.limingdao.com/60033)
+- Midjourney🚀生成这样的旧漫头像 [https://www.limingdao.com/60043](https://www.limingdao.com/60043)
+- 怎样让你的AI头像更“像”你？超详细教程来了 [https://www.limingdao.com/60255](https://www.limingdao.com/60255)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFNiVBMSU4QyVFOSU5RCVBMiVFNSVBMyU4MSVFNyVCQSVCOA==)桌面壁纸
+
+- AI壁纸图片副业0基础多重变现！一分钟学会！ [https://www.limingdao.com/60250](https://www.limingdao.com/60250)
+- Midjourney生成精美的二次元壁纸 [https://www.limingdao.com/60460](https://www.limingdao.com/60460)
+- 今日份壁纸请查收 [https://www.limingdao.com/60526](https://www.limingdao.com/60526)
+- Midjourney生成壁纸-世界树 [https://www.limingdao.com/60232](https://www.limingdao.com/60232)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFNiVBOCVBMSVFNyU4OSVCOSVFNiU4RCVBMiVFOCVBMyU4NQ==)模特换装
+
+- 用MJ做模特换装，不用本地部署，直接上手做 ，效果很好！ [https://www.limingdao.com/60227](https://www.limingdao.com/60227)
+- AI高仿真模特变装教程！为你的开店成本节省一大笔！ [https://www.limingdao.com/60222](https://www.limingdao.com/60222)
+- 免费100%保留原型换装教程！电商福音！ [https://www.limingdao.com/60217](https://www.limingdao.com/60217)
+- 一键搞定AI模特换装！无需SD和MJ，出图超简单！ [https://www.limingdao.com/60212](https://www.limingdao.com/60212)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFNSU5NSU4NiVFNSU5MyU4MSVFNSVCOSVCRiVFNSU5MSU4QQ==)商品广告
+
+- 自己在家直接输出高级广告！老板劲省广告费！副业者猛赚广告收入！五分钟学会！ [https://www.limingdao.com/60207](https://www.limingdao.com/60207)
+- 【AI搞钱】利用AI快速生成商品包装 [https://www.limingdao.com/60199](https://www.limingdao.com/60199)
+- 设计无难事 I 草图一键生成效果图 [https://www.limingdao.com/60483](https://www.limingdao.com/60483)
+- Midjourney生成产品图-香水 [https://www.limingdao.com/60189](https://www.limingdao.com/60189)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFNSU4NCVCRiVFNyVBQiVBNSVFNyVCQiU5OCVFNiU5QyVBQw==)儿童绘本
+
+- 抓住机会！快速入手赚钱！AI儿童绘本制作不学绝对后悔！ [https://www.limingdao.com/60182](https://www.limingdao.com/60182)
+- 【AI绘图搞钱】快速做手账图 [https://www.limingdao.com/60168](https://www.limingdao.com/60168)
+- 【AI绘图搞钱】快速做人物手账图 [https://www.limingdao.com/60162](https://www.limingdao.com/60162)
+- 制作人物手账-消防员小可爱 [https://www.limingdao.com/60518](https://www.limingdao.com/60518)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFOCVBMSVBOCVFNiU4MyU4NSVFNSU4QyU4NQ==)表情包
+
+- 我用AI生成的表情包搞到钱了！每日都有进账！！ [https://www.limingdao.com/60157](https://www.limingdao.com/60157)
+- 想要轻松赚取额外收入？试试AI图片副业吧！只需2分钟自动生成表情包，即可获得永久被动收入！ [https://www.limingdao.com/60152](https://www.limingdao.com/60152)
+- 💰用Ai搞钱｜批量生成表情包 [https://www.limingdao.com/60142](https://www.limingdao.com/60142)
+- AI表情包制作教程 超简单 [https://www.limingdao.com/60132](https://www.limingdao.com/60132)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFNSVBRSVCNiVFNSU4NSVCNyVFOCVBMyU4NSVFNCVCRiVBRQ==)家具&装修
+
+- 【Midjourney教程】如何用AI装修毛坯房客厅？ [https://www.limingdao.com/60126](https://www.limingdao.com/60126)
+- MJ制作建筑图片-手绘风建筑 [https://www.limingdao.com/60114](https://www.limingdao.com/60114)
+- MJ制作建筑图片-古风建筑图 [https://www.limingdao.com/60101](https://www.limingdao.com/60101)
+- MJ制作建筑图片-室内建筑图 [https://www.limingdao.com/60091](https://www.limingdao.com/60091)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyI2xvZ28lRTUlODglQjYlRTQlQkQlOUM=)LOGO制作
+
+- 【AI副业】ChatGPT+Midjourney 2分钟自动生成标志Logo！学会接单日入500！（附教程） [https://www.limingdao.com/60086](https://www.limingdao.com/60086)
+- 【Midjourney教程】如何快速设计品牌logo？ [https://www.limingdao.com/60081](https://www.limingdao.com/60081)
+- 【AIlogo制作教程】Midjourney教你如何轻松设计logo [https://www.limingdao.com/60076](https://www.limingdao.com/60076)
+- 【AI海报LOGO设计】用AI软件StableDiffusion设计各种风格的海报字体logo [https://www.limingdao.com/60071](https://www.limingdao.com/60071)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFNyU4NSVBNyVFNyU4OSU4NyVFNCVCRiVBRSVFNSVBNCU4RA==)照片修复
+
+- 【AI绘画】黑白老照片修复上色教程，让回忆更清晰！ [https://www.limingdao.com/60066](https://www.limingdao.com/60066)
+- 【AI图像修复神器】一键修复老照片，提高画质！ [https://www.limingdao.com/60061](https://www.limingdao.com/60061)
+- 【新玩法】PS+AI带你修复老照片赚钱 [https://www.limingdao.com/60056](https://www.limingdao.com/60056)
+- 老照片修复攻略：AI绘画轻松接单赚钱 [https://www.limingdao.com/60038](https://www.limingdao.com/60038)
+
+## [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyI2FpJUU2JTk2JTg3JUU2JUExJTg4JUU4JUI1JTlBJUU5JTkyJUIxJUU1JTg5JUFGJUU0JUI4JTlB)AI文案赚钱副业
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFNiU5NiVCMCVFNSVBQSU5MiVFNCVCRCU5MyVFNiU4RSVBOCVFNiU5NiU4Nw==)新媒体推文
+
+- 短视频文案制作思维教学！全干货！ [https://www.limingdao.com/60285](https://www.limingdao.com/60285)
+- 新媒体脚本如何高效率创作？AI解决方案如下！ [https://www.limingdao.com/60290](https://www.limingdao.com/60290)
+- 【副业】ChatGPT批量搞定小红书文案的骚操作！篇篇都是爆款！ [https://www.limingdao.com/60295](https://www.limingdao.com/60295)
+- 用GPT生成新媒体文案！效率拉满，收益提高！ [https://www.limingdao.com/60300](https://www.limingdao.com/60300)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyI2FpJUU4JUFFJUJBJUU2JTk2JTg3JUU0JUJCJUEzJUU1JTg2JTk5)AI论文代写
+
+- 中科院美术专业版GPT Academic免费润色学术论文！ [https://www.limingdao.com/60305](https://www.limingdao.com/60305)
+- 【AI写论文神器】一键润色、查重，轻松搞定学术写作！ [https://www.limingdao.com/60362](https://www.limingdao.com/60362)
+- 【AI写论文】如何利用AI工具撰写论文？ [https://www.limingdao.com/60357](https://www.limingdao.com/60357)
+- 【慎用AI写作工具】如何避免论文风险？ [https://www.limingdao.com/60352](https://www.limingdao.com/60352)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyI2FpJUU1JUIwJThGJUU4JUFGJUI0JUU3JUJDJTk2JUU1JTg5JUE3)AI小说编剧
+
+- 【AI编剧神器来袭】一键生成完美剧本，轻松成为编剧达人！ [https://www.limingdao.com/60352](https://www.limingdao.com/60352)
+- 【AI写小说指南】教你如何玩转AI创意写作 [https://www.limingdao.com/60342](https://www.limingdao.com/60342)
+- 【AI写作秘籍】7步教你让ChatGPT成为你的小说助手！ [https://www.limingdao.com/60337](https://www.limingdao.com/60337)
+- AI写小说指令教学，提高写作效率 [https://www.limingdao.com/60332](https://www.limingdao.com/60332)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyI2FpJUU3JUFFJTgwJUU1JThFJTg2JUU2JTk0JUI5JUU1JTg2JTk5)AI简历改写
+
+- 无需GPT的AI简历生成器！助你求职之路更有竞争力！ [https://www.limingdao.com/60327](https://www.limingdao.com/60327)
+- 应届生的从0到offer：手把手教你用AI打造出面试率99%的简历 [https://www.limingdao.com/60322](https://www.limingdao.com/60322)
+- 求职神器ChatGPT帮你三分钟搞定从0到满分简历 [https://www.limingdao.com/60317](https://www.limingdao.com/60317)
+- ChatGPT+简历修改服务，月盈利过万 | 保姆级教程公开，人人可做！ [https://www.limingdao.com/60312](https://www.limingdao.com/60312)
+
+## [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyI2FpJUU5JTlGJUIzJUU5JUEyJTkxJUU4JUI1JTlBJUU5JTkyJUIxJUU1JTg5JUFGJUU0JUI4JTlB)AI音频赚钱副业
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyI2FpJUU1JUEzJUIwJUU5JTlGJUIzJUU1JTg1JThCJUU5JTlBJTg2)AI声音克隆
+
+- 10分钟学会声音克隆！一键启动包发布！在家自己做AI音频副业！ [https://www.limingdao.com/60369](https://www.limingdao.com/60369)
+- 最适合新手来做的声音克隆！非常友好！ [https://www.limingdao.com/60374](https://www.limingdao.com/60374)
+- AI变声翻唱教程！做优质内容涨粉！ [https://www.limingdao.com/60379](https://www.limingdao.com/60379)
+- 低配也能做AI变声！一起来体验DDSP！ [https://www.limingdao.com/60384](https://www.limingdao.com/60384)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyI2FpJUU5JTlGJUIzJUU0JUI5JTkw)AI音乐
+
+- AI音乐生成神器大揭秘！stable audio等工具任你选择 [https://www.limingdao.com/60389](https://www.limingdao.com/60389)
+- 【AI音乐】音乐人失业！5分钟免费生成歌曲，作曲+填词+自唱！用AI音乐赚钱，从零基础变成创作歌手！ [https://www.limingdao.com/60394](https://www.limingdao.com/60394)
+- 【AI音乐新利器】Suno：一键生成多样音乐，中英文歌词轻松应对 [https://www.limingdao.com/60399](https://www.limingdao.com/60399)
+- AI音乐生成工具全攻略，轻松创作免版权音乐！ [https://www.limingdao.com/60404](https://www.limingdao.com/60404)
+
+## [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyI2FpJUU3JTlCJUI0JUU2JTkyJUFE)AI直播
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFNiU5NyVBMCVFNCVCQSVCQSVFOCVCNCVBNyVFNiU5RSVCNiVFNyU5QiVCNCVFNiU5MiVBRA==)无人货架直播
+
+- 【AI直播】最新无人直播语音技术，还能听出来不是真人讲的吗？ [https://www.limingdao.com/60411](https://www.limingdao.com/60411)
+- 【教程】AI主播能自己介绍商品，回复无人直播间各种互动！ [https://www.limingdao.com/60416](https://www.limingdao.com/60416)
+- 无人直播玩法来这里学习！ [https://www.limingdao.com/60421](https://www.limingdao.com/60421)
+- 【AI直播】搭建自己的AI无人直播间！零基础入手赚大钱！ [https://www.limingdao.com/60426](https://www.limingdao.com/60426)
+
+### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFOCU5OSU5QSVFNiU4QiU5RiVFNCVCQSVCQSVFNyU5QiVCNCVFNiU5MiVBRA==)虚拟人直播
+
+- 制作属于你的AI直播间！立刻生成你的数字形象！ [https://www.limingdao.com/60431](https://www.limingdao.com/60431)
+- 【AI直播】数字人生成项目！直播必备技能！ [https://www.limingdao.com/60436](https://www.limingdao.com/60436)
+- 一张图片就能虚拟直播！这个门槛确定不来看看吗？ [https://www.limingdao.com/60441](https://www.limingdao.com/60441)
+- 【虚拟人项目】开源聊天虚拟人项目！最有搞头的项目！ [https://www.limingdao.com/60446](https://www.limingdao.com/60446)
