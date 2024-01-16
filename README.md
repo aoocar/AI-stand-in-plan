@@ -285,7 +285,7 @@ aoo697
 - 无人直播玩法来这里学习！ [https://www.limingdao.com/60421](https://www.limingdao.com/60421)
 - 【AI直播】搭建自己的AI无人直播间！零基础入手赚大钱！ [https://www.limingdao.com/60426](https://www.limingdao.com/60426)
 
-### [虚拟人直播
+### 虚拟人直播
 
 - 制作属于你的AI直播间！立刻生成你的数字形象！ [https://www.limingdao.com/60431](https://www.limingdao.com/60431)
 - 【AI直播】数字人生成项目！直播必备技能！ [https://www.limingdao.com/60436](https://www.limingdao.com/60436)
