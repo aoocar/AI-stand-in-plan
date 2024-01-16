@@ -269,23 +269,23 @@ aoo697
 - AI变声翻唱教程！做优质内容涨粉！ [https://www.limingdao.com/60379](https://www.limingdao.com/60379)
 - 低配也能做AI变声！一起来体验DDSP！ [https://www.limingdao.com/60384](https://www.limingdao.com/60384)
 
-### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyI2FpJUU5JTlGJUIzJUU0JUI5JTkw)AI音乐
+### AI音乐
 
 - AI音乐生成神器大揭秘！stable audio等工具任你选择 [https://www.limingdao.com/60389](https://www.limingdao.com/60389)
 - 【AI音乐】音乐人失业！5分钟免费生成歌曲，作曲+填词+自唱！用AI音乐赚钱，从零基础变成创作歌手！ [https://www.limingdao.com/60394](https://www.limingdao.com/60394)
 - 【AI音乐新利器】Suno：一键生成多样音乐，中英文歌词轻松应对 [https://www.limingdao.com/60399](https://www.limingdao.com/60399)
 - AI音乐生成工具全攻略，轻松创作免版权音乐！ [https://www.limingdao.com/60404](https://www.limingdao.com/60404)
 
-## [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyI2FpJUU3JTlCJUI0JUU2JTkyJUFE)AI直播
+## AI直播
 
-### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFNiU5NyVBMCVFNCVCQSVCQSVFOCVCNCVBNyVFNiU5RSVCNiVFNyU5QiVCNCVFNiU5MiVBRA==)无人货架直播
+### 无人货架直播
 
 - 【AI直播】最新无人直播语音技术，还能听出来不是真人讲的吗？ [https://www.limingdao.com/60411](https://www.limingdao.com/60411)
 - 【教程】AI主播能自己介绍商品，回复无人直播间各种互动！ [https://www.limingdao.com/60416](https://www.limingdao.com/60416)
 - 无人直播玩法来这里学习！ [https://www.limingdao.com/60421](https://www.limingdao.com/60421)
 - 【AI直播】搭建自己的AI无人直播间！零基础入手赚大钱！ [https://www.limingdao.com/60426](https://www.limingdao.com/60426)
 
-### [](https://www.limingdao.com/?golink=aHR0cHM6Ly9naXRodWIuY29tL2JsZWVkbGluZS9haW1vbmV5aHVudGVyIyVFOCU5OSU5QSVFNiU4QiU5RiVFNCVCQSVCQSVFNyU5QiVCNCVFNiU5MiVBRA==)虚拟人直播
+### [虚拟人直播
 
 - 制作属于你的AI直播间！立刻生成你的数字形象！ [https://www.limingdao.com/60431](https://www.limingdao.com/60431)
 - 【AI直播】数字人生成项目！直播必备技能！ [https://www.limingdao.com/60436](https://www.limingdao.com/60436)
