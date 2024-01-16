@@ -46,14 +46,14 @@
 
 # 关于合集
 
-- 本合集内容将同步收录至<a href="https://17yongai.com">一起用AI</a>
+- 本合集内容将同步收录至<a href="https://www.limingdao.com">一起用AI</a>
 - 内容主要围绕使用AIGC技术生成内容，通过内容来获取流量或制作对应特定内容的产品进行销售
 - 关于程序员在AI方向上的创业选择，我们将分享一些自己的认知
 
 如果你对AI做副业感兴趣，可以添加我们的小助手wechat:
 
 ```
-yiqiyongai
+aoo697
 ```
 
 
@@ -105,10 +105,10 @@ yiqiyongai
 # AI自媒体赚钱思路分享
 ## ai脚本视频赚钱
 ### 图片绘本故事
-- 使用AI技术重新绘制三国连环画，轻松赚取收益！ https://17yongai.com/12163.html
-- 1分钟教你利用ChatGPT+Midjourney做小红书！月入2w+! https://17yongai.com/11464.html
-- 人工智能AI助你月入万刀！制作儿童动画视频，轻松实现短视频赚钱和创业梦想！ https://17yongai.com/11533.html
-- 在家轻松搬砖赚钱，全程AI操作，手把手教你如何制作民间故事视频赚取丰厚收益！ https://17yongai.com/11525.html
+使用AI技术重新绘制三国连环画，轻松赚取收益！ https://www.limingdao.com/59848
+1分钟教你利用ChatGPT+Midjourney做小红书！月入2w+! https://www.limingdao.com/59859
+AI制作儿童故事动漫，低成本高回报的项目，全流程免费教学，不到八分钟就能学会！ https://www.limingdao.com/59865
+在家轻松搬砖赚钱，全程AI操作，手把手教你如何制作民间故事视频赚取丰厚收益！ https://www.limingdao.com/59870
 ### 虚拟人口播
 - 免费AI口播工具推荐！数字人本地部署教程 https://17yongai.com/12155.html
 - 免费生成AI数字人！完美应对你的智能化需求！副业方向推荐！ https://17yongai.com/11657.html
